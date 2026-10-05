@@ -14,7 +14,6 @@ How is the coffee working for you? Did it do the trick in shaking off that linge
  
 虽然咖啡因大约需要 15 到 45 分钟才能在血液中达到峰值，但有意识的运动会立即增加血流量和神经兴奋。激活这些动态的内部机制可以给您的神经系统带来即时、明确的唤醒信号。
 
-
 How many rounds of the Five Elements did you end up doing, and how did your body feel afterward?
 
 
