@@ -3,10 +3,10 @@
 ---
 
 
-1. 预备式-Opening Tai Chi (Proprioception 本体感受) --- You stand with feet shoulder-width apart, knees slightly bent, Chest in, back straight 含胸拔背 and arms hanging naturally.
-
+![[Note - Cheng Ming 太极拳.csv]]
 词汇/短语,侧重点
 
+1. 预备式-Opening Tai Chi (Proprioception 本体感受) --- You stand with feet shoulder-width apart, knees slightly bent, Chest in, back straight 含胸拔背 and arms hanging naturally.
 Kinesthetic Awareness,肌肉运动知觉。更偏向于对运动过程、速度和力量的感知。
 
 Body Awareness,身体意识。比较通俗的说法，常用于描述通过冥想或太极获得的对自己身体状态的敏锐感知。
